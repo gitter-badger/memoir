@@ -48,3 +48,5 @@ Many of the natural parts of the UC Berkeley landscape (as well as physical buil
 - Cheese Board Pizza (Berkeley)
 - Pizza Rustica (Oakland)
 - North Beach Pizza (SF)
+
+Note that Fat Slice and Blondies are famous pizza places on/around Telegraph Avenue. I was never a fan of Blondies, and while I did eat Fat Slice on occasion, the other places mentioned are actually worth going to (rather than eating at because hungry/cheap prices). 
