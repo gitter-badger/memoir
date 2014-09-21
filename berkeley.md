@@ -1,6 +1,8 @@
 # Berkeley, California
 
-I moved to Berkeley in 1990 and lived in the San Francisco bay area for 11 years. While there I achieved two degrees at UC Berkeley, a BA attending from 1991-1994 with credit transferred from CU-Denver and CCD) and an MS from 1999-2001. From 1994 to 1999 I worked full-time at two companies each for three years: Grubb & Ellis, a commercial real estate broker, and Dolby Laboratories, a pioneering digital audio company. There was a brief stint of consulting with the Aslan Consulting in mid 1997, but while it was lucrative and interesting, I felt better inside of a company as an employee (this feeling would change around 1999).
+I moved to Berkeley, California in 1990 and lived in the San Francisco bay area for 11 years. While there I achieved two degrees at UC Berkeley, a BA attending from 1991-1994 with credit transferred from CU-Denver and CCD) and an MS from 1999-2001. From 1994 to 1999 I worked full-time at two companies each for three years: Grubb & Ellis, a commercial real estate broker, and Dolby Laboratories, a pioneering digital audio company. There was a brief stint of consulting with the Aslan Consulting in mid 1997, but while it was lucrative and interesting, I felt better inside of a company as an employee (this feeling would change around 1999).
+
+I have fond feelings for Berekely, some people there, as well as the urban and parkland environment, many restaurants, shops, and of course the University (beautiful and stimulating), as well as various gyms and performance places (Zellerbach hall). Berekely has problems of course: expensive, overcrowded, crime issues, pollution. And by the time I left I was ready for change, and was happy for a new adventure. Nevertheless, I still feel deeply connected to Berkeley and though it has now been more than 10 years since I was there (writing this in 2014).
 
 ## Oxford Street
 
