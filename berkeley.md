@@ -14,6 +14,36 @@ Oxford street was not the quietest neighborhood. I remember returning from a vis
 
 ...
 
-### Places around Berkeley
+## Places around Berkeley
+
+It has been a long time since I was in Berkeley, so who knows if many of these places are still the same or even still existing. However, my memories of them have faded little over time.
+
+### Indian Rock
 
 ...
+
+### Zellerbach Hall
+
+...
+
+### Classical Music Store on Bancroft
+
+...
+
+### Spinning and Yoga classes at the UC Berkeley Recreational Sports Facility (RSF)
+
+...
+
+### Strawberry Creek, Eucalyptus Grove, Large tree south of the College of Environmental Design, view from the Campanile
+
+Many of the natural parts of the UC Berkeley landscape (as well as physical buildings) are memorable. Of course much memory is built over time spent in these areas, so at first glance to the visitor they might not be much there.
+
+### Berkeley Rose Garden and Cordonices Park
+
+...
+
+### Pizza in Berkeley, Oakland, SF
+
+- Zachary's Pizza (Berekely, Oakland)
+- Pizza Rustica (Oakland)
+- North Beach Pizza (SF)
