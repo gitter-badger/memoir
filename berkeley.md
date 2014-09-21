@@ -45,5 +45,6 @@ Many of the natural parts of the UC Berkeley landscape (as well as physical buil
 ### Pizza in Berkeley, Oakland, SF
 
 - Zachary's Pizza (Berekely, Oakland)
+- Cheese Board Pizza (Berkeley)
 - Pizza Rustica (Oakland)
 - North Beach Pizza (SF)
