@@ -62,20 +62,6 @@ Other issues: images (download), source documents (pdf and save)
 - Age at death: 54, 85, 61, 76, 82, 89, 51 = 498/7 = average 71 years, median 76 years, range 51-89 years.
 
 
-### Donor Children
-
-I donated sperm in the early 1990s while an undergraduate student at UC Berkeley. My Donor ID is [#1205 at Calfornia Cryobank](http://www.cryobank.com/Profile.aspx?donorNO=01205). According to their policies they take a donor out of circulation after 10 confirmed pregnancies. At the [Donor Sibling Registry](https://www.donorsiblingregistry.com/members/ListRegistry?dpIdentityNumber=1205) there are four mothers with a total of six children registered:
-
-- Girl born Jun 16, 1995 - Kanlipe (Parent)
-- Boy born Sep 24, 1996 - Mimrab (Parent)
-- Girl born Sep 17, 1997 - Dawnosaurus (Parent)
-- Boy born Nov 5, 1997 - Dartyn (Parent)
-- Boy born Feb 13, 2001 - Dartyn (Parent)
-- Girl born Nov 12, 2003 - Dawnosaurus (Parent)
-
-For these births I was between 29 and 37 years old, though I have until this point had no contact with the children or the parents. There could be up to four and possibly more donor siblings than these listed here. 
-
-My next child is expected to be born in 2015 at the age of 49 years old.
 
 
 ## Ireland vs/and Scotland (and Northern Ireland)
